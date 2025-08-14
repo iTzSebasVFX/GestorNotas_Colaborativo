@@ -1,2 +1,2 @@
 # GestorNotas_Colaborativo
-Con Eddie y Sebas
+Sebas el más gay 
